@@ -2,7 +2,7 @@
 - 👀 I’m interested in sports
 - 🌱 I’m currently learning pensamento computacional
 - 💞️ I’m looking to collaborate in study
-- 📫 How to reach me... don't arrive :smi
+- 📫 How to reach me... don't arrive 
 - 🌙 Don't trust your teacher.. 😆
 - i love this [sound](https://youtu.be/K-nijQl1QCY)
 <!---
